@@ -1,0 +1,1 @@
+[https://ifnowcode.github.io/fast](https://ifnowcode.github.io/fast)
